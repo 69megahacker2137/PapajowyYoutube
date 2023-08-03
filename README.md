@@ -4,7 +4,7 @@
 ---
 ### LINKI DO INSTALACJI <br />
 
-  ### [💩C̾H̾R̾O̾M̾E̾](https://www.youtube.com/) 丨 [FIREFOX](https://www.youtube.com/) 丨 [OPERA](https://www.youtube.com/) <br />
+  ### [💩C̾H̾R̾O̾M̾E̾](https://www.youtube.com/watch?v=YJfjnVUYSbE) 丨 [FIREFOX](https://addons.mozilla.org/firefox/addon/papajowy-youtube/) 丨 [OPERA](https://www.youtube.com/) <br />
 
 <br />
     
