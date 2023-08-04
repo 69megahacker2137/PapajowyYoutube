@@ -9,7 +9,7 @@
 <br />
     
     WIELKIE PODZIĘKOWANIA DLA: 
-     - 𝓙₱2𝓖𝓜𝓓 (𝓙𝓪𝓷 𝓟𝓪𝔀𝓮ł 𝓘𝓘, 𝓖łó𝔀𝓷𝔂 𝓜𝓮𝓶𝓮 𝓓𝓮𝓿𝓮𝓵𝓸𝓹𝓮𝓻)
+     - 𝓙₱2𝓖𝓜𝓓 (𝓖łó𝔀𝓷𝔂 𝓜𝓮𝓶𝓮 𝓓𝓮𝓿𝓮𝓵𝓸𝓹𝓮𝓻)
      - Wszystkich gitów co zrobili te memuchy
 
 <br />
